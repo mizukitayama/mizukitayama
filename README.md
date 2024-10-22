@@ -14,5 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-
-![glee-brittany-pierce](https://github.com/user-attachments/assets/01bf892f-10fe-4fa6-b8cd-e3cff7b86498)
+![bear](https://github.com/user-attachments/assets/4a11eb7f-fceb-467d-ac03-d5540fa65852) ![glee](https://github.com/user-attachments/assets/01bf892f-10fe-4fa6-b8cd-e3cff7b86498)
